@@ -9,3 +9,4 @@ My [Spotify Playlist](https://open.spotify.com/playlist/2AZtAJ8DWtOPUBqshJdvb6?s
 My [Instergram](https://www.instagram.com/derbi.rider.88/) you can leave an follow if u want ;)
 
 My [Steam Acc](https://steamcommunity.com/profiles/76561199119897929/)
+.
