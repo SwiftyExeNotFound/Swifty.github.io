@@ -1,4 +1,4 @@
- ## Swifty´s Playground
+## Swifty´s Playground
 
 Welcome to my new site!!
 
